@@ -1,6 +1,7 @@
 # 1. 일상, 성경과 함께하다.
 
-![일상과 하나님](https://files.oaiusercontent.com/file-jh5N2Lf8HpAyqmISJ7O8zL5t?se=2024-10-09T09%3A02%3A34Z&sp=r&sv=2024-08-04&sr=b&rscc=max-age%3D604800%2C%20immutable%2C%20private&rscd=attachment%3B%20filename%3D1dec83e2-f9f6-48ff-bb17-ca3502b20b36.webp&sig=lJg63VT5wjHKyaIp7IOPDxl47AU2jIw%2Btmm62GiGr2I%3D)
+![5f67c0ef-8b6d-4beb-a830-b5e6fe6ae7ad](https://github.com/user-attachments/assets/59906340-4fe0-490e-9337-5dffc889b8ac)
+
 
 > 영수는 아침에 일어나 출근 준비를 하며 어제 주일에 들었던 설교 말씀을 다시 되뇌입니다. "빛과 소금과 같은 신앙인이 되자." 그러나 막상 출근을 하고 회사의 수많은 업무에 치이다 보면, 어느새 마음속엔 일과 성과에 대한 고민만 가득합니다. 고객의 불만, 팀 프로젝트 마감, 그리고 끊임없는 회의… 하루하루가 무겁게만 느껴집니다. 하루를 시작할 때 가졌던 결단과 마음가짐은 어느새 흔들리고, 믿음의 빛은 희미해져 갑니다.
 
@@ -127,7 +128,8 @@
 
 # 2. 나와 가족과 성경
 
-![가족](https://files.oaiusercontent.com/file-MHosi45DCWreWir0n8TK7d4M?se=2024-10-09T15%3A21%3A13Z&sp=r&sv=2024-08-04&sr=b&rscc=max-age%3D604800%2C%20immutable%2C%20private&rscd=attachment%3B%20filename%3De24bec4b-be58-4f26-b8a5-ab752523629c.webp&sig=kIzP0pRjtCstMx3vtrWGeDqvkqSgq%2BulUheQKz/d824%3D)
+![2d7299d5-19db-4d49-a563-9fec65eddc33](https://github.com/user-attachments/assets/b2514a0c-1abb-4c58-a676-39a944b1e588)
+
 
 성경은 부부가 서로 사랑하고 존중하라고 명령합니다. 에베소서 5장 25절에서는 “남편들아, 아내 사랑하기를 그리스도께서 교회를 사랑하시고 그 교회를 위하여 자신을 주심같이 하라”고 말씀합니다. 그리스도의 사랑은 희생적이고 무조건적인 사랑으로, 이는 부부 관계에서 서로를 위해 헌신하는 태도를 요구합니다. 예를 들어, 남편이 아내의 생일이나 특별한 날에 작은 서프라이즈를 준비하여 그녀에게 특별한 사랑을 표현하는 것이 좋은 사례입니다. 또한 에베소서 5장 22절에서는 “아내들이여, 자기 남편에게 복종하기를 주께 하듯 하라”라고 권면합니다. 이는 남편이 아내를 사랑하고 아내는 남편을 존중하는 상호적인 관계를 의미하며, 이러한 관계가 건강한 가정을 이루는 기초가 됩니다.
 
